@@ -1,0 +1,1 @@
+# Exchange-Rate-PKR-INR-USD-1947-2024-
